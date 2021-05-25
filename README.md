@@ -1,0 +1,2 @@
+# uchinchi
+mening uchinchi ishim
